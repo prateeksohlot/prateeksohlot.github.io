@@ -1,1 +1,1 @@
-# prateeksohlot.github.io
+# Snorlaxing: Embrace the Art of Chill.
